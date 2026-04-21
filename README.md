@@ -1,0 +1,1 @@
+# minguu-6-_kecerdasan-buatan
